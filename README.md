@@ -1,5 +1,5 @@
 Sambung kata untuk Pull Request Hacktoberfest 
-Rules 
+Rules :
 # 1 :  Please DO NOT add something SARA.
 # 2 :  Please DO NOT add new file.
 # 3 :  Please register your github to https://hacktoberfest.digitalocean.com/
