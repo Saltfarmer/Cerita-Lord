@@ -1,8 +1,6 @@
----
-title: Azab juragan cincin
----
+# Azab juragan cincin
 
-Kisah ini berawal saat aku kuliah di kota Y. Perkenalkan nama saya Asn,
+  Kisah ini berawal saat aku kuliah di kota Y. Perkenalkan nama saya Asn,
 tubuh saya memang terlihat sangat atletis, oleh kolega saya wajah saya
 mirip dengan tokoh di suatu film, film juragan cincin. Saya memang
 sangat disukai oleh kolega saya, ketika saya berbicara kolega saya ikut
@@ -12,7 +10,7 @@ yang paling diingat orang-orang tentang saya adalah saya sangat fasih
 dalam berbahasa Inggris. Bahkan, negara yang menggunakan bahasa inggris
 sebagai bahasa utamanya sampai tak sanggup berkata apa-apa.
 
-Suatu hari, tante saya berkunjung ke rumah saya tanpa memberitahu kabar
+  Suatu hari, tante saya berkunjung ke rumah saya tanpa memberitahu kabar
 terlebih dahulu. Waktu itu hari sedang sangat panas sepanas tubuh
 atletis saya. Saya pun terkejut ketika tante saya berada di depan pintu.
 Waktu itu tante sedang membawa koleksi DVD film namun judulnya masih
@@ -25,7 +23,7 @@ karena lupa membawa handuk dan ingin saya membawakannya. "Anjirr, toilet
 baru saya bersihin malah dikotorin lagi" gumamku lagi. Tiba-tiba terjadi
 hal yang diluar dugaan.
 
-Saya diberi tante saya sebuah cincin, saya terkejoed dan kegirangan.
+  Saya diberi tante saya sebuah cincin, saya terkejoed dan kegirangan.
 Setelah itu saya kecewa karena cincin itu hanyalah cincin plastik
 bewarna hijau dari hadiah makanan dan saya kira tante akan menikahi
 saya. Hal itu pun tetap membuat saya untuk mengajak menonton DVD film
