@@ -41,3 +41,10 @@ gemuruh diluar, saya panik karena saya mengira itu azab. Ternyata ada
 meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya.
+
+  Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.
+Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
+yang jelas namun lembut. "Mass, keluarkan aku!". Dilihat dengan seksama, ternyata 
+ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat.
+Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku.
+Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet.
