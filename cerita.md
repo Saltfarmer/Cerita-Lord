@@ -32,7 +32,7 @@ kesukaanmu saat kamu di kamar sendirian" jawab tanteku. "Wah, mantap
 koleksi kobepku bertambah" di dalam otakku. Sayangnya aku tidak punya
 otak.
 
-Saat DVD diputar, ternyata buka film yang aku harapkan. Ternyata DVD itu
+  Saat DVD diputar, ternyata buka film yang aku harapkan. Ternyata DVD itu
 adalah sinetron yang ada judul AZ*B saya terkejoed. Saya tidak
 menyangka ada hal-hal yang berada di luar nalar yang terjadi di alam
 sekitar. Hal ini membuat saya bertanya-tanya dan lalu setelah menemukan
