@@ -1,6 +1,6 @@
 # Azab juragan cincin
 
-https://cdn-images-1.medium.com/max/1200/0*yt7Mwvdb8e08xxhk.jpg
+![alt-text](https://cdn-images-1.medium.com/max/1200/0*yt7Mwvdb8e08xxhk.jpg)
 
   Kisah ini berawal saat aku kuliah di kota Y. Perkenalkan nama saya Asn,
 tubuh saya memang terlihat sangat atletis, oleh kolega saya wajah saya
