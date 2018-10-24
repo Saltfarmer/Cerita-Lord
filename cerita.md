@@ -1,5 +1,7 @@
 # Azab juragan cincin
 
+https://cdn-images-1.medium.com/max/1200/0*yt7Mwvdb8e08xxhk.jpg
+
   Kisah ini berawal saat aku kuliah di kota Y. Perkenalkan nama saya Asn,
 tubuh saya memang terlihat sangat atletis, oleh kolega saya wajah saya
 mirip dengan tokoh di suatu film, film juragan cincin. Saya memang
@@ -40,4 +42,4 @@ jawaban saya bertekad untuk membenahi diri. Tiba-tiba terdengar suara
 gemuruh diluar, saya panik karena saya mengira itu azab. Ternyata ada
 meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
-tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya.
+tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. 
