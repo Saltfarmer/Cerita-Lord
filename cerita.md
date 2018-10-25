@@ -44,3 +44,5 @@ meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. "Budi!!!, Budi!!!.",
 "Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
+Tante saya masih asik melihat video AZ*B sambil menggerak-gerakkan tangan dan tubuh seperti orang kena AZ*B.
+saya baru sadar ternyata tante saya menggunakan kacamata 3D.
