@@ -53,4 +53,5 @@ ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya t
 Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku.
 Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet.
 Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante.
-Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku
+Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku.
+Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku.
