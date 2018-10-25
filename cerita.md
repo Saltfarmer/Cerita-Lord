@@ -52,3 +52,4 @@ saya baru sadar ternyata tante saya menggunakan kacamata 3D. "Mass, keluarkan ak
 ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat.
 Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku.
 Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet.
+Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante.
