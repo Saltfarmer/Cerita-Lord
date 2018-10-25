@@ -43,7 +43,7 @@ gemuruh diluar, saya panik karena saya mengira itu azab. Ternyata ada
 meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 
-  Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. 
+  Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya.
 Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
 yang jelas namun lembut. "Budi!!!, Budi!!!.",
 "Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
@@ -55,3 +55,5 @@ Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dom
 Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante.
 Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku.
 Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku.
+"Tante ini apa?" tanyaku, tante menjawab "Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!". tante terus memaksaku
+aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos
