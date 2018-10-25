@@ -45,7 +45,10 @@ Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 
   Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. 
 Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
-yang jelas namun lembut. "Mass, keluarkan aku!". Dilihat dengan seksama, ternyata 
+yang jelas namun lembut. "Budi!!!, Budi!!!.",
+"Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
+Tante saya masih asik melihat video AZ*B sambil menggerak-gerakkan tangan dan tubuh seperti orang kena AZ*B.
+saya baru sadar ternyata tante saya menggunakan kacamata 3D. "Mass, keluarkan aku!". Dilihat dengan seksama, ternyata 
 ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat.
 Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku.
 Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet.
