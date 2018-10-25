@@ -42,4 +42,5 @@ jawaban saya bertekad untuk membenahi diri. Tiba-tiba terdengar suara
 gemuruh diluar, saya panik karena saya mengira itu azab. Ternyata ada
 meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
-tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. 
+tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. "Budi!!!, Budi!!!.",
+"Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
