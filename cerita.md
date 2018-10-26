@@ -43,22 +43,13 @@ gemuruh diluar, saya panik karena saya mengira itu azab. Ternyata ada
 meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 
-  Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya.
-Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
-yang jelas namun lembut. "Budi!!!, Budi!!!.",
-"Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
+  Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
+yang jelas namun lembut. "Budi!!!, Budi!!!.", "Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
 Tante saya masih asik melihat video AZ*B sambil menggerak-gerakkan tangan dan tubuh seperti orang kena AZ*B.
 saya baru sadar ternyata tante saya menggunakan kacamata 3D. "Mass, keluarkan aku!". Dilihat dengan seksama, ternyata 
-ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat.
-Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku.
-Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet.
-Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante.
-Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku.
-Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku.
-"Tante ini apa?" tanyaku, tante menjawab "Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!". tante terus memaksaku
-aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos.
+ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat. Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku. Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet. Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante. Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku. Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku. "Tante ini apa?" tanyaku, tante menjawab "Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!". tante terus memaksaku. aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos.
 
 	Tak lama setelah itu Kratos muncul di hadapanku.Aku tertegun ketika bertemu dengan Kratos. Perawakannya sangar, kekar, dan wajahnya penuh bekas luka. Dia tidak sendiri, melainkan bersama dengan Apollo dengan kereta perangnya. Kratos kemudian memukulku seketika aku pingsan.
 Saat aku tersadar, tiba-tiba aku berada di suatu tempat yang indah, dan aku yakin ini bukan di bumi. "Selamat Datang di Olympus," ucap Apollo. 
-Aku terperangah, AKU kaget dan tidak bisa berkata apa-apa. Tempat yang selama ini aku dambakan ingin menuju ke sana. Dan sekarang aku benar-benar berada di tempat itu. Kulihat Corygore, Son of Zeus, lalu dia berteriak, "Kok menggangguu~", dan kemudian muncul di hadapanku. "Lo anak 
-kemaren sore ya? Songong amat" Ujar Corygore.
+
+	Aku terperangah, AKU kaget dan tidak bisa berkata apa-apa. Tempat yang selama ini aku dambakan ingin menuju ke sana. Dan sekarang aku benar-benar berada di tempat itu. Kulihat Corygore, Son of Zeus, lalu dia berteriak, "Kok menggangguu~", dan kemudian muncul di hadapanku. "Lo anak kemaren sore ya? Songong amat" Ujar Corygore.
