@@ -56,4 +56,9 @@ Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyat
 Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku.
 Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku.
 "Tante ini apa?" tanyaku, tante menjawab "Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!". tante terus memaksaku
-aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos
+aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos.
+
+	Tak lama setelah itu Kratos muncul di hadapanku.Aku tertegun ketika bertemu dengan Kratos. Perawakannya sangar, kekar, dan wajahnya penuh bekas luka. Dia tidak sendiri, melainkan bersama dengan Apollo dengan kereta perangnya. Kratos kemudian memukulku seketika aku pingsan.
+Saat aku tersadar, tiba-tiba aku berada di suatu tempat yang indah, dan aku yakin ini bukan di bumi. "Selamat Datang di Olympus," ucap Apollo. 
+Aku terperangah, AKU kaget dan tidak bisa berkata apa-apa. Tempat yang selama ini aku dambakan ingin menuju ke sana. Dan sekarang aku benar-benar berada di tempat itu. Kulihat Corygore, Son of Zeus, lalu dia berteriak, "Kok menggangguu~", dan kemudian muncul di hadapanku. "Lo anak 
+kemaren sore ya? Songong amat" Ujar Corygore.
