@@ -23,17 +23,17 @@ mempersilahkan tante saya untuk masuk. Tiba-tiba tante saya ingin pergi
 ke kamar kecil karena ingin mandi untuk melepaskan kelelahan. Hmmmm,
 sepertinya dia kebelet sesuatu atau mempersiapkan sesuatu di toilet
 gumamku. Akan tetapi, saat tante saya sedang di toiler, dia memanggilku
-karena lupa membawa handuk dan ingin saya membawakannya. "Anjirr, toilet
-baru saya bersihin malah dikotorin lagi" gumamku lagi. Tiba-tiba terjadi
+karena lupa membawa handuk dan ingin saya membawakannya. “Anjirr, toilet
+baru saya bersihin malah dikotorin lagi” gumamku lagi. Tiba-tiba terjadi
 hal yang diluar dugaan.
 
   Saya diberi tante saya sebuah cincin, saya terkejoed dan kegirangan.
 Setelah itu saya kecewa karena cincin itu hanyalah cincin plastik
 bewarna hijau dari hadiah makanan dan saya kira tante akan menikahi
 saya. Hal itu pun tetap membuat saya untuk mengajak menonton DVD film
-yang dibawanya. "Film apa itu tante ?" tanyaku. "Oh, hanya film
-kesukaanmu saat kamu di kamar sendirian" jawab tanteku. "Wah, mantap
-koleksi kobepku bertambah" di dalam otakku. Sayangnya aku tidak punya
+yang dibawanya. “Film apa itu tante ?” tanyaku. “Oh, hanya film
+kesukaanmu saat kamu di kamar sendirian” jawab tanteku. “Wah, mantap
+koleksi kobepku bertambah” di dalam otakku. Sayangnya aku tidak punya
 otak.
 
   Saat DVD diputar, ternyata buka film yang aku harapkan. Ternyata DVD itu
@@ -46,11 +46,11 @@ meteor jatuh yang memiliki ukuran yang sangat besar didekat rumah saya.
 Namun anehnya terdapat sekumpulan makhluk asing dari meteor teserbut dan
 
   Saya tidak habis pikir, dan kemudian bertanya-tanya apa gerangan yang terjadi.tiba-tiba cincin plastik tersebut menyala-nyala memanggil saya. Cincin tersebut seolah ingin memberitahu saya sesuatu hal. Terdengar bisikan-bisikan
-yang jelas namun lembut. "Budi!!!, Budi!!!.", "Budi ndasmu!!!" saya reflek ngegas karena yang dipanggil nama bapak saya.
+yang jelas namun lembut. “Budi!!!, Budi!!!.”, “Budi ndasmu!!!” saya reflek ngegas karena yang dipanggil nama bapak saya.
 Tante saya masih asik melihat video AZ*B sambil menggerak-gerakkan tangan dan tubuh seperti orang kena AZ*B.
-saya baru sadar ternyata tante saya menggunakan kacamata 3D. "Mass, keluarkan aku!". Dilihat dengan seksama, ternyata 
-ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat. Saya bingung. "Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini," gumamku. Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet. Seketika itu saya berpikir, "Loh saya kan kaya, kok dompetku kosong", eh ternyata itu dompetnya tante. Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku. Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. "Bajilak!!!" teriakku. "Tante ini apa?" tanyaku, tante menjawab "Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!". tante terus memaksaku. aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos.
+saya baru sadar ternyata tante saya menggunakan kacamata 3D. “Mass, keluarkan aku!”. Dilihat dengan seksama, ternyata 
+ada seorang gadis yang terkurung di dalam cincin tersebut. Saya terkejut. Saya terperanjat. Saya bingung. “Kenapa bisa seorang gadis cantik bisa terjebak di dalam cincin ini,” gumamku. Saya tidak tahu harus berbuat apa, pikiran saya seketika kosong, seperti isi dompet. Seketika itu saya berpikir, “Loh saya kan kaya, kok dompetku kosong”, eh ternyata itu dompetnya tante. Sesaat melihat dompet tante, aku seperti melihat benda yang tidak kusangka tante sekarang bawa untuk ke kamarku. Setelah melihat lebih jelas dan seksama, ternyata itu ID Card MLM. “Bajilak!!!” teriakku. “Tante ini apa?” tanyaku, tante menjawab “Jalan menuju kekayaan tujuh puluh turunan, kamu mesti gabung!!!”. tante terus memaksaku. aku langsung berlari keluar menunggangi naga indosiar peliharaan kakek. tapi naas, naga itu sudah dibunuh oleh kratos.
 
-Tak lama setelah itu Kratos muncul di hadapanku.Aku tertegun ketika bertemu dengan Kratos. Perawakannya sangar, kekar, dan wajahnya penuh bekas luka. Dia tidak sendiri, melainkan bersama dengan Apollo dengan kereta perangnya. Kratos kemudian memukulku seketika aku pingsan. Saat aku tersadar, tiba-tiba aku berada di suatu tempat yang indah, dan aku yakin ini bukan di bumi. "Selamat Datang di Olympus," ucap Apollo. 
+Tak lama setelah itu Kratos muncul di hadapanku.Aku tertegun ketika bertemu dengan Kratos. Perawakannya sangar, kekar, dan wajahnya penuh bekas luka. Dia tidak sendiri, melainkan bersama dengan Apollo dengan kereta perangnya. Kratos kemudian memukulku seketika aku pingsan. Saat aku tersadar, tiba-tiba aku berada di suatu tempat yang indah, dan aku yakin ini bukan di bumi. “Selamat Datang di Olympus,” ucap Apollo. 
 
-Aku terperangah, AKU kaget dan tidak bisa berkata apa-apa. Tempat yang selama ini aku dambakan ingin menuju ke sana. Dan sekarang aku benar-benar berada di tempat itu. Kulihat Corygore, Son of Zeus, lalu dia berteriak, "Kok menggangguu~", dan kemudian muncul di hadapanku. "Lo anak kemaren sore ya? Songong amat" Ujar Corygore.
+Aku terperangah, AKU kaget dan tidak bisa berkata apa-apa. Tempat yang selama ini aku dambakan ingin menuju ke sana. Dan sekarang aku benar-benar berada di tempat itu. Kulihat Corygore, Son of Zeus, lalu dia berteriak, “Kok menggangguu~”, dan kemudian muncul di hadapanku. “Lo anak kemaren sore ya? Songong amat” Ujar Corygore.
